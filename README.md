@@ -10,4 +10,4 @@
 
 - 📫 How to reach me: (https://www.linkedin.com/in/nikhilnim/)
 
--😄 Pronouns: he/His
+- 😄 Pronouns: he/His
